@@ -1,6 +1,5 @@
 ### ola tudo bem?
 Meu nome é Higor
-Luto kung  fu
+Luto kickboxing
 Desenho
-Namoro 
 Sou desempregado
